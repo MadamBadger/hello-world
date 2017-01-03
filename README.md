@@ -4,5 +4,5 @@ This is my home base. All of my proposals and ideas can be found in this reposit
 
 Hey Minions,
 
-This is Madam Badger. I'm a sassy hufflepuff training to take my place.
-I have big ideas and am learning how to bring them into what y'all call 'reality'.
+This is Madam Badger. I'm a sassy hufflepuff.
+My dream job is to be Cisco Ramon.
